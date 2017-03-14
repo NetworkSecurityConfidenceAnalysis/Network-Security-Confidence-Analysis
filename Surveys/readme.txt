@@ -1,1 +1,0 @@
-Survey history and results on on the survey web site, available as a pdf or zip file on request.
